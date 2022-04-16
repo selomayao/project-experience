@@ -1,3 +1,3 @@
-# Project Video:
+# Project Video
 
 https://youtu.be/UTZgnyiLEEY
